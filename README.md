@@ -1,16 +1,15 @@
-## Hi there 👋
+# INTRODUCTION
 
-<!--
-**YumiShiro/yumishiro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝓗𝓮𝓵𝓵𝓸 .ᐟ (˶ᵔ ᵕ ᵔ˶)
 
-Here are some ideas to get you started:
+  ࣪ ☾. ᵃᵇᵒᵘᵗ ᵐᵉ ۶ৎ
+  ╰┈➤ I go by Yumi! I am a digital artist and an animator. I'm socially awkward person. I rarely interact with other people when I'm bored or when my friends are offline. I might end up saying random stuff or just stay quiet throughout the conversation because I ***REALLY*** don't know how to start a conversation. Though, please don't be weird around me unless we are friends. I'll get a bit more talkative when we're close! (Sometimes or much likely would talk about art hihie.) Also please only (and strictly) use she/her pronouns on me, thank you!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  My pookies!! Ily guys so muchh💙🩵🤍
+  
+  @WhispersofHeaven
+  @Xingqiukisser @Bloodypa1nter
+  @chloeaiiu
+  @4rtistic
+  @lilyhug
+  @Shuiouma

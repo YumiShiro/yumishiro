@@ -3,4 +3,8 @@
 𝓗𝓮𝓵𝓵𝓸 .ᐟ (˶ᵔ ᵕ ᵔ˶)
 
   ࣪ ☾. ᵃᵇᵒᵘᵗ ᵐᵉ ۶ৎ
-  ╰┈➤ I go by Yumi! I am a digital artist and an animator. I'm socially awkward person. I rarely interact with other people when I'm bored or when my friends are offline. I might end up saying random stuff or just stay quiet throughout the conversation because I ***REALLY*** don't know how to start a conversation. Though, please don't be weird around me unless we are friends. I'll get a bit more talkative when we're close! (Sometimes or much likely would talk about art hihie.) Also please only (and strictly) use she/her pronouns on me, even in roleplay, thank you!
+  ╰┈➤ I go by Yumi! I am a digital artist and an animator.
+  
+  · I'm a socially awkward person and might rarely interact with anyone whenever I'm bored or when my friends are offline. Sometimes I might end up saying random stuff or just stay quiet all throughout because I don't know where to begin the conversation or how to express myself properly around strangers.
+
+  As for my pronouns, I preferably want people to use only she/her, though they/them is fine too. ^^

@@ -1,2 +1,3 @@
-![image](https://files.catbox.moe/lphs4z.png){800x:800x}
+![image](https://files.catbox.moe/lphs4z.png)
+
       Crochette Dollothea (Dandy's World Oc by me)

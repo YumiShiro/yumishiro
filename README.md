@@ -1,1 +1,3 @@
-honestly, I might change this soon or probably leave it like this lmao
+when you can't decide which is better than the other:
+
+![img](https://files.catbox.moe/qgzuag.png) ![img](https://files.catbox.moe/1oybvl.png)

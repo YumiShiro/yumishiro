@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Art Showcase!
+# ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Art Showcase!
 
 Yumi in Dv3 Killing Harmony style (updated)
 

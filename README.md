@@ -1,4 +1,4 @@
-<h1 align="center">$${\color{lightblue}Art \space Showcase!}$$</h1>
+<h1 align="center">Art Showcase!</h1>
 
 <h4 align="center">Yumi in Danganronpa V3 - Killing Harmony style</h4>
 

@@ -1,7 +1,3 @@
-![img](https://files.catbox.moe/y5ol4k.jpg)
-
-I love you to the person who said this (⁠\*⁠´⁠ω⁠｀⁠\*⁠)
-
 <h1 align="center">Art Showcase!</h1>
 
 <h4 align="center">Yumi in Danganronpa V3 - Killing Harmony style</h4>

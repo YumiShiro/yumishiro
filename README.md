@@ -1,3 +1,5 @@
+![img](https://file.garden/amRF8V7QPhVBh9_d/image-1.png) ㅤ aight who decided it's a good idea to rip off my skin
+
 <h1 align="center">Art Showcase!</h1>
 
 <h4 align="center">Yumi in Danganronpa V3 - Killing Harmony style</h4>

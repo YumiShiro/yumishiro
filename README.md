@@ -1,4 +1,4 @@
-![img](https://file.garden/amRF8V7QPhVBh9_d/image-1.png) ㅤ aight who decided it's a good idea to rip off my skin @Kovkychi
+![img](https://file.garden/amRF8V7QPhVBh9_d/image-1.png) ㅤ aight who decided it's a good idea to rip off my skin [@Kovkychi](https://github.com/Kovkychi)
 
 <h1 align="center">Art Showcase!</h1>
 

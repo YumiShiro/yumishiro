@@ -1,4 +1,4 @@
-![img](https://file.garden/amRF8V7QPhVBh9_d/image-1.png) ㅤ aight who decided it's a good idea to rip off my kokichi oma skin [@Kovkychi](https://github.com/Kovkychi)
+![img](https://file.garden/amRF8V7QPhVBh9_d/image-1.png) ㅤ aight who decided it's a good idea to rip off my kokichi oma skin [@Kovkychi](https://github.com/Kovkychi) image creds to [@ivancest](https://github.com/ivancest)
 
 <h1 align="center">Art Showcase!</h1>
 

@@ -1,4 +1,4 @@
-<h6 align="center">https://rentry.co/KOVKYCHI-CALLOUT</h6>
+<h3 align="center">https://rentry.co/KOVKYCHI-CALLOUT</h6>
 
 <h1 align="center">Art Showcase!</h1>
 

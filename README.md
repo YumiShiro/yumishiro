@@ -1,5 +1,3 @@
-<h3 align="center">https://rentry.co/KOVKYCHI-CALLOUT</h6>
-
 <h1 align="center">Art Showcase!</h1>
 
 <h4 align="center">Yumi in Danganronpa V3 - Killing Harmony style</h4>

@@ -7,3 +7,6 @@
 <h4 align="center">some little pixel sprites I made!</h4>
 
 ![img](https://files.catbox.moe/iwaw7t.png) ![gif](https://files.catbox.moe/k8pflq.gif) ![gif](https://files.catbox.moe/3st801.gif) ![gif](https://files.catbox.moe/cwwc2l.gif) ![gif](https://files.catbox.moe/2ukre3.gif) ![gif](https://files.catbox.moe/96gi1y.gif) ![gif](https://files.catbox.moe/vos91p.gif) ![gif](https://files.catbox.moe/1w8ck7.gif) ![gif](https://files.catbox.moe/fezxyz.gif) ![gif](https://files.catbox.moe/3b18y4.gif)
+
+![img](https://files.catbox.moe/6t638m.jpg)
+@SINFULPERISH and me being silly

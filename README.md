@@ -1,5 +1,9 @@
 <h1 align="center">Art Showcase!</h1>
 
+<h4 align="center">a little doodle of my yumeship hehe</h4>
+
+![img](https://files.catbox.moe/e4t70u.jpg)
+
 <h4 align="center">Yumi in Danganronpa V3 - Killing Harmony style</h4>
 
 ![img](https://files.catbox.moe/r234af.png)

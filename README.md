@@ -2,7 +2,7 @@
 
 <h4 align="right">my persona and her alternative counterpart</h4>
 
-<img src="https://files.catbox.moe/vr7mmk.jpg" width="250" alt="Alt Text"> <img src="https://files.catbox.moe/hej7xh.jpg" width="600" alt="Alt Text">
+<img src="https://files.catbox.moe/vr7mmk.jpg" width="150" alt="Alt Text"> <img src="https://files.catbox.moe/hej7xh.jpg" width="400" alt="Alt Text">
 
 <h4 align="center">a little doodle of my yumeship hehe</h4>
 

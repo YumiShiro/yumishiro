@@ -1,8 +1,8 @@
 <h1 align="center">Art Showcase!</h1>
 
-<h4 align="left">pov: doing a dynamic ᴘᴏsᴇ for the first time </h4>
+<h4 align="left">displayholic miku wip</h4>
 
-<img src="https://files.catbox.moe/7u7847.jpg" width="500" alt="img">
+<img src="https://files.catbox.moe/hdvqct.jpg" width="500" alt="img">
 
 <h4 align="right">my persona and her alternative counterpart</h4>
 

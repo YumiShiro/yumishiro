@@ -2,7 +2,7 @@
 
 <h4 align="left">displayholic miku wip</h4>
 
-<img src="https://files.catbox.moe/hdvqct.jpg" width="500" alt="img">
+<img src="https://files.catbox.moe/ngvaud.png" width="500" alt="img">
 
 <h4 align="right">my persona and her alternative counterpart</h4>
 

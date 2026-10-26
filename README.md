@@ -1,6 +1,6 @@
 <h1 align="center">Art Showcase!</h1>
 
-<h4 align="center"> wip of my oc yumi:3</h4>
+<h4 align="center"> wip of my oc yumi for tweening animation:3</h4>
 
 ![img](https://files.catbox.moe/mw9d9a.png)
 

@@ -1,5 +1,7 @@
 <h1 align="center">Art Showcase!</h1>
 
+<h4 align="center"> wip of my oc yumi:3</h4>
+
 ![img](https://files.catbox.moe/mw9d9a.png)
 
 <h4 align="right">my persona and her alternative counterpart</h4>

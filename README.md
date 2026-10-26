@@ -1,5 +1,7 @@
 <h1 align="center">Art Showcase!</h1>
 
+![img](https://files.catbox.moe/mw9d9a.png)
+
 <h4 align="right">my persona and her alternative counterpart</h4>
 
 <img src="https://files.catbox.moe/vr7mmk.jpg" width="150" alt="img"> <img src="https://files.catbox.moe/hej7xh.jpg" width="400" alt="img">

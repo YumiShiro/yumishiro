@@ -1,3 +1,9 @@
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31njrcnqcxq6rmgmd5oir6ze5jtq&cover_image=true&theme=novatorem&show_offline=false&background_color=d69cab&interchange=false&profanity=false&hide_remaster=false&bar_color=374780&bar_color_cover=false">
+  </a>
+</p>
+
 <h1 align="center">Art Showcase!</h1>
 
 <h4 align="center"> wip of my oc yumi for tweening animation:3</h4>
